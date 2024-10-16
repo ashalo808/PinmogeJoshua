@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @PinmogeJoshua
 - 👀 I’m interested in Economics and Maths
-- 🌱 I’m currently major in Big Data Application and Management
+- 🌱 I’m currently major in Big Data Application and Management in Dalian University of Technology
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: stellewang808@gmail.com
 - 😄 Pronouns: ...
