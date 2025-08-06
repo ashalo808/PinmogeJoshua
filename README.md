@@ -20,7 +20,6 @@ I'm Xinran Wang, a passionate student and aspiring professional in data-driven d
 
 ## 📫 How to Reach Me
 - **Email**: [stellewang808@gmail.com](mailto:stellewang808@gmail.com)
-- **Phone**: +88 1520277450 (or other numbers from CVs, depending on context)
 
 ## 😄 Pronouns
 - She/Her (assumed; please confirm or update)
